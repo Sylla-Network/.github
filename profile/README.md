@@ -7,4 +7,5 @@ We aim to include the following:
 - Practice
 
 Join the discord here: https://discord.sylla.club/
+
 Alternative discord link: https://discord.gg/bYKWMFxn
