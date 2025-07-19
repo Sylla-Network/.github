@@ -8,4 +8,4 @@ We aim to include the following:
 
 Join the discord here: https://discord.sylla.live/
 
-Alternative discord link: https://discord.gg/bYKWMFxn
+Alternative discord link: https://discord.gg/qFY8rHuD5s
