@@ -6,6 +6,6 @@ We aim to include the following:
 - Skyblock
 - Practice
 
-Join the discord here: https://discord.sylla.club/
+Join the discord here: https://discord.sylla.live/
 
 Alternative discord link: https://discord.gg/bYKWMFxn
